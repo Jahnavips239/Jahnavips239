@@ -10,4 +10,4 @@ Email Me 👉 ✉️ **jahnavips239@gmail.com** For Collaboration/Project or Any
 - 💬 **Ask me about:** Collaboration, Tech Support-->
 - 📫 **How to reach me:** jahnavips239@gmail.com
 <!--- 😄 **Pronouns:** Imran Sir-->
-- ⚡ **Fun fact:** I Love Tech and Tech Love 
+- ⚡ **Fun fact:** I Love Tech and Tech Love me
